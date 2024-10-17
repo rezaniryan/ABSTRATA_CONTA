@@ -1,0 +1,1 @@
+# ABSTRATA_CONTA
